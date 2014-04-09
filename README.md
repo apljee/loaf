@@ -1,4 +1,5 @@
-loaf
+Legend of April Fools
 ====
 
-loaf b cool
+Check the plethora page you dimwits
+
